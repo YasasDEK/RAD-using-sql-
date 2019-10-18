@@ -1,0 +1,1 @@
+Officially founded in 2010, "Click and Buy.com" is an ecommerce platform that allows people to buy newitems. The company’s recent Price Match Guarantee ensures that customers are getting the best prices available on most of the items available in its selection of Click and Buy Deals. The Click and Buy website gets an average of about 20000 visits per month.
